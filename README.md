@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @QiiiWen
+- 👀 I’m interested in Artificial Interligence
+- 🌱 I’m currently studying Conputer Science
+- 📫 can reached me through this email: qwgiok123@gmail.com
